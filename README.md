@@ -1,10 +1,4 @@
-V7x-Tool
 
-http://www.youtube.com/c/Vairous7x
-
-www.Vairous7x.com
-
-V7x Team (-_^)
 
 Uploaded 23/7/2019
 
